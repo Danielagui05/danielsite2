@@ -1,2 +1,2 @@
 # danielsite2
-hello 
+print('hello') 

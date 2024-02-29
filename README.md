@@ -1,10 +1,18 @@
-# Daniel's Dump
-### This is my website about me! I love to talk about things I currently love and can talk about endlessly. 
-![picture]![IMG_9683](https://github.com/Danielagui05/danielsite2/assets/141764292/b0fa6dc7-6756-4b94-bcbb-28c50cb85ced)
+# Daniel's Dump (not a turd joke)
+### This is my website about me! I love to talk about things I currently enjoy and can talk about endlessly. 
+
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=socutedani&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
+
+![IMG_9683](https://github.com/Danielagui05/danielsite2/assets/141764292/b0fa6dc7-6756-4b94-bcbb-28c50cb85ced)
+# Looking at the Willy Wonka experience worker kind of made me realize I wanna work in something I truly enjoy and it solidified my like current plan, I have no one but Ireland's very own Glasgow to thank!
 
 [![Watch the video](https://img.youtube.com/vi/N2A9NucjJ2s/maxresdefault.jpg)](https://www.youtube.com/watch?v=N2A9NucjJ2s)
-# This is one of my favorite songs right now
-[![Watch the video](https://img.youtube.com/vi/UqmUxkRPBS0/hqdefault.jpg)](https://www.youtube.com/watch?v=UqmUxkRPBS0)
+
+#I like rewatching certain youtube videos, not really because I think they're that good but because I get bored and for some reason they like comfort me, even if said videos are just some mid 20 year olds yelling about some absurd shit. I'll still smile and consume. 
+
+# This is one of my favorite songs, it made me go up north fr. 
+[![North Clairo](https://img.youtube.com/vi/bZ2R1WkUwUs/0.jpg)](https://www.youtube.com/watch?v=YbZ2R1WkUwUs)
+
 ## This is when I saw manta rays at the Atlanta Aquarium!
 ![IMG_2830](https://github.com/Danielagui05/danielsite2/assets/141764292/5b29ae7d-3dfb-499b-a4bd-e19bd4d96052)
 # These are a few of my favorite people on the planet, they have my heart
